@@ -27,6 +27,8 @@ I love books and recently I enjoy books about Art and photography. I prefer the 
 
 ## Photography
 
+* [Really Right Stuff TVC-24L Tripod with BH-40 LR Ballhead](http://www.reallyrightstuff.com/Shop/Mid-Size-Packages-Series-2/TVC-24L-Tripod-with-BH-40-LR-Ballhead.html)
+* [Really Right Stuff B6D-L: L-plate for 6D](http://www.reallyrightstuff.com/Shop/EOS-6D/B6D-L-L-plate-for-6D.html)
 * [Light Painting Brushes Starter Kit](http://lightpaintingbrushes.com/collections/light-painting-brush-sets/products/light-painting-brushes-starter-kit)
 * [Photoshop User Magazine subscription](https://itunes.apple.com/ca/app/photoshop-user-magazine/id506139533?mt=8)
 * [Olloclip 4-IN-1 LENS iPhone 5/5s](http://www.olloclip.com/product/iphone5-4-in-1/)
