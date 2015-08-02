@@ -13,6 +13,7 @@ I love books and recently I enjoy books about Art and photography. I prefer the 
 
 ##### History and Biographies
 
+* [Elon Musk: Tesla, SpaceX, and the Quest for a Fantastic Future](http://www.amazon.ca/Elon-Musk-SpaceX-Fantastic-Future-ebook/dp/B00KVI76ZS/ref=tmm_kin_swatch_0?_encoding=UTF8&qid=&sr=)
 * [Didier Drogba: The Autobiography](http://www.amazon.ca/dp/1845134389/ref=wl_it_dp_o_pC_nS_ttl?_encoding=UTF8&colid=35PZZN09M2C0U&coliid=IOXEYLC1DSMW1)
 * [The Clinton Tapes: Wrestling History with the President](http://www.amazon.ca/dp/1416543333/ref=wl_it_dp_o_pC_nS_ttl?_encoding=UTF8&colid=35PZZN09M2C0U&coliid=I1SWXY4XLX99UT)
 
