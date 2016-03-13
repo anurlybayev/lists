@@ -30,6 +30,7 @@ I love books and recently I enjoy books about Art and photography. I prefer the 
 ## Photography
 
 * [Minolta CLE](http://www.kenrockwell.com/leica/cle.htm)
+* [Hasselblad 500 C/M](http://www.ebay.com/bhp/hasselblad-500-cm)
 * [Light Painting Brushes Starter Kit](http://lightpaintingbrushes.com/collections/light-painting-brush-sets/products/light-painting-brushes-starter-kit)
 * ~~[Photoshop User Magazine subscription](https://itunes.apple.com/ca/app/photoshop-user-magazine/id506139533?mt=8)~~
 * ~~[Olloclip 4-IN-1 LENS iPhone 5/5s](http://www.olloclip.com/product/iphone5-4-in-1/)~~
