@@ -31,9 +31,9 @@ I love books and recently I enjoy books about Art and photography. I prefer the 
 
 * [Minolta CLE](http://www.kenrockwell.com/leica/cle.htm)
 * [Hasselblad 500 C/M](http://www.ebay.com/bhp/hasselblad-500-cm)
+* [Kiev 88](http://www.ebay.com/bhp/kiev-88)
+* [Bronica ETRS](http://www.ebay.com/bhp/bronica-etrs)
 * [Light Painting Brushes Starter Kit](http://lightpaintingbrushes.com/collections/light-painting-brush-sets/products/light-painting-brushes-starter-kit)
-* ~~[Photoshop User Magazine subscription](https://itunes.apple.com/ca/app/photoshop-user-magazine/id506139533?mt=8)~~
-* ~~[Olloclip 4-IN-1 LENS iPhone 5/5s](http://www.olloclip.com/product/iphone5-4-in-1/)~~
 * [Canon EF 135mm f/2L USM Lens](http://www.the-digital-picture.com/ShoppingEngine/Click.aspx?b=1&e=108)
 * [Canon EF 85mm f/1.2L II USM Lens](http://www.the-digital-picture.com/ShoppingEngine/Click.aspx?b=1&e=397)
 * [Canon EF 100mm f/2.8L IS USM Macro Lens](http://www.the-digital-picture.com/ShoppingEngine/Click.aspx?b=1&e=674)
